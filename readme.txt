@@ -5,7 +5,9 @@ Git tracks changes of files.
 Radiohead fucking awesome!!!
 oasis
 ong ong
+
 you konw?
+gun&roses
 rock n roll will never die!
 damn it!
 yeah yeah yeahs
